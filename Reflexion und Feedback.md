@@ -1,3 +1,6 @@
+**Arijon Ibrahimi - 12424744
+Stefan Knaus - 12428661**
+
 ### Wie wurde Ihr Verständnis der gewählten Denkweise durch diese Übungsarbeit verändert? 
 Die gewählten Denkweisen waren Scientific Thinking und Design Thinking.
 
